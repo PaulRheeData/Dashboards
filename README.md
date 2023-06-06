@@ -1,1 +1,1 @@
-Sample Dashboards Created by Paul
+Sample Dashboards created by Paul Rhee
